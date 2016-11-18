@@ -1,1 +1,1 @@
-Esempio rublica
+Esempio rubrica
